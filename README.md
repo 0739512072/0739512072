@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me... call: 0739512072
                         email:otsebe6414@gmail.com 
-- 😄 Pronouns: ...He/him/his
+- 😄 Pronouns: ...He/him
 - ⚡ Fun fact: ... I like mystery movies
 
 <!---
